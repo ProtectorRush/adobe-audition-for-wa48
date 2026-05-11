@@ -1,4 +1,4 @@
-
+best Adobe Audition for macOS Script | lower-thirds + stream-overlays is the best Adobe Audition for macOS script, featuring lower-thirds and stream-overlays. Safe, efficient, and
 
 
 
